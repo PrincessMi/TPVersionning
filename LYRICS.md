@@ -2,13 +2,10 @@
 L’École du micro d’argent
 =========================
 
-## IAM
+# IAM
 
-# Chœur :
 
-L'École du micro d'argent
-
-L'École du micro d'argent
+## Chœur :
 
 L'École du micro d'argent
 
@@ -20,8 +17,13 @@ L'École du micro d'argent
 
 L'École du micro d'argent
 
+L'École du micro d'argent
 
-# Shurik'n :
+L'École du micro d'argent
+
+
+
+## Shurik'n :
 
 Assis en tailleur, voilà des heures que je médite
 
