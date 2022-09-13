@@ -6,6 +6,7 @@ L’École du micro d’argent
 
 ## Chœur :
 
+
 L'École du micro d'argent
 
 L'École du micro d'argent
@@ -101,7 +102,9 @@ L'École du micro d'argent
 
 
 
-# Akhenaton
+
+# Akhenaton :
+
 
 Mon sabre scintille, je médite accroupi sous les branches d'un saule
 
@@ -149,8 +152,25 @@ Tel est mon labeur, tu sais de qui je défends l'honneur
 
 
 
-Je représente
+L'École du micro d'argent
+
+L'École du micro d'argent
 
 Je représente
 
+L'École du micro d'argent
+
+L'École du micro d'argent
+
 Je représente
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+Je représente
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
