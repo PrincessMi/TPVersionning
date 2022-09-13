@@ -23,7 +23,7 @@ L'École du micro d'argent
 
 
 
-
+*********************************************************
 
 
 ## Shurik'n :
@@ -74,7 +74,7 @@ Mes griffes gravent les couleurs de l'Empire
 Plus grand que celui d'Alexandre dont je suis le défenseur
 
 
-
+*********************************************************
 
 
 L'École du micro d'argent
@@ -100,7 +100,7 @@ L'École du micro d'argent
 L'École du micro d'argent
 
 
-
+*********************************************************
 
 
 # Akhenaton :
@@ -149,7 +149,7 @@ Délégué pour mettre un terme à ces horreurs
 Tel est mon labeur, tu sais de qui je défends l'honneur
 
 
-
+*********************************************************
 
 
 L'École du micro d'argent
