@@ -1,4 +1,4 @@
-#Kool Shen
+# Kool Shen
 
 À l'aube de l'an 2000 pour les jeunes c'est plus le même deal
 
@@ -35,7 +35,7 @@ Regarde-le, quand il parle, écoute-le!
 
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
 
-#Kool Shen
+# Kool Shen
 
 Que voulais-tu que ton fils apprenne dans la rue?
 
