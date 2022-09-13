@@ -1,75 +1,43 @@
-# Kool Shen
+# Akhenaton
 
-À l'aube de l'an 2000 pour les jeunes c'est plus le même deal
+Mon sabre scintille, je médite accroupi sous les branches d'un saule
 
-Pour celui qui traîne, comme pour celui qui file
+Pleure, je défends l'honneur de mon école, fils
 
-Tout droit, de tout façon y a plus de boulot
+Le troisième œil scrute le terrain, la tactique
 
-La boucle est bouclée, le système a la tête sous l'eau
+À pratiquer, pour balayer l'ennemi, statique
 
-Et les jeunes sont saoulés, salis sous le silence
+Physiquement, les déplacements furtifs
 
-Seule issue la rue même quand elle est en sens
+De l'essence de mon esprit élabore les bases de ma stratégie
 
-C'est pas un souci pour ceux qui s'y sont préparés, si ça se peut
+Donc je me dresse dans des cliquetis, bardé d'armes
 
-Certains d'entre eux même s'en sortiront mieuxMais pour les autres, c'est clair, ça s'ra pas facile
+J'ai une armée entière sous le charme
 
-Faut pas s'voiler la face, il suffit pas d'vendre des kils
+Prête à mourir, à la gloire de mon étendard
 
-Faut tenir le terrain pour le lendemainS'assurer que les siens aillent bien, éviter les coups de surin
+J'ai rassemblé la clique des valeureux guerriers barbares
 
-Afin de garder son bien intactSon équipe compacte, soudée
+Dare-dare j'ai envoyé paître les lettres
 
-Écoute de scanner pour garder le contact ouDécider de bouger, éviter les zones rouges, et
+Pourchassé les traîtres, selon l'enseignement de mes maîtres
 
-Surtout jamais prendre de congéC'est ça que tu veux pour ton fils?
+Sans relâche, je crache des cendres
 
-C'est comme ça que tu veux qu'il grandisse?
+Et poursuivrai les massacres jusqu'à ce que le nom d'AKH soit légende
 
-J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse
+Car le soldat, guerrier alpha est adroit
 
-Regarde-le, quand il parle, écoute-le!
+Et lance l'assaut là, sur l'école du micro en bois
 
+La bataille a débuté, tiens
 
-Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
+Ce coup vient d'un expert à la guerre
 
-# Kool Shen
+Vaillant praticien des arts martiens
 
-Que voulais-tu que ton fils apprenne dans la rue?
+Délégué pour mettre un terme à ces horreurs
 
-Quelles vertus croyais-tu qu'on y enseigne?
-
-Mais t'as pas vu comment ça pue dehors
-
-Mais comment ça sent la mort?
-
-Quand tu respires ça, mec, t'es comme mort-né
-
-Tu finis borné à force de tourner en rond
-
-Ton cerveau te fait défaut, puis fait des bonds
-
-Et c'est vraiment pas bon quand t'en perds le contrôle
-
-Quand pour les yeux des autres, tu joues de mieux en mieux ton rôle
-
-Ton rôle de caillera, juste pour ne pas
-
-Qu'on te dise, "Voilà tu fais plus partie de la mifa d'en bas"
-
-C'est dingue mais c'est comme ça
-
-Sache qu'ici-bas, plus qu'ailleurs, la survie est un combat
-
-À base de coups bas, de coups de tonba
-
-D'esquives, des "shta-pow!" de putains de stonba
-
-Laisse pas traîner ton fils
-
-Si tu veux pas qu'il glisse
-
-Qu'il te ramène du vice
-
+Tel est mon labeur, tu sais de qui je défends l'honneur
