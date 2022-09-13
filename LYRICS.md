@@ -1,6 +1,27 @@
-<<<<<<< HEAD
 
-Shurik'n :
+L’École du micro d’argent
+=========================
+
+## IAM
+
+# Chœur :
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+
+# Shurik'n :
 
 Assis en tailleur, voilà des heures que je médite
 
@@ -45,24 +66,3 @@ Je sens l'esprit du félin m'envahir
 Mes griffes gravent les couleurs de l'Empire
 
 Plus grand que celui d'Alexandre dont je suis le défenseur
-=======
-L’École du micro d’argent
-
-IAM
-
-Chœur 
-
-L'École du micro d'argent
-
-L'École du micro d'argent
-
-L'École du micro d'argent
-
-L'École du micro d'argent
-
-L'École du micro d'argent
-
-L'École du micro d'argent
-
-L'École du micro d'argent
->>>>>>> 6e707633c32301a528958c32dca218cfe7772bf3
