@@ -66,3 +66,13 @@ Je sens l'esprit du félin m'envahir
 Mes griffes gravent les couleurs de l'Empire
 
 Plus grand que celui d'Alexandre dont je suis le défenseur
+
+
+
+Je représente
+
+
+Je représente
+
+
+Je représente
