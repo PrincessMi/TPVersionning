@@ -1,5 +1,3 @@
-<<<<<<< HEAD
-
 L’École du micro d’argent
 =========================
 
@@ -7,14 +5,6 @@ L’École du micro d’argent
 
 
 ## Chœur :
-=======
-L’École du micro d’argent
-=========================
-
-## IAM
-
-# Chœur :
->>>>>>> aed06d66f253e3319ac45baa677ba667ed209e0c
 
 L'École du micro d'argent
 
@@ -31,12 +21,10 @@ L'École du micro d'argent
 L'École du micro d'argent
 
 
-<<<<<<< HEAD
+
 
 ## Shurik'n :
-=======
-# Shurik'n :
->>>>>>> aed06d66f253e3319ac45baa677ba667ed209e0c
+
 
 Assis en tailleur, voilà des heures que je médite
 
@@ -82,20 +70,16 @@ Mes griffes gravent les couleurs de l'Empire
 
 Plus grand que celui d'Alexandre dont je suis le défenseur
 
-<<<<<<< HEAD
 
-=======
->>>>>>> aed06d66f253e3319ac45baa677ba667ed209e0c
 
-Je représente
+L'École du micro d'argent
 
+L'École du micro d'argent
 
 Je représente
 
+L'École du micro d'argent
 
-<<<<<<< HEAD
-Je représente
-=======
 L'École du micro d'argent
 
 Je représente
@@ -110,4 +94,3 @@ L'École du micro d'argent
 
 L'École du micro d'argent
 
->>>>>>> aed06d66f253e3319ac45baa677ba667ed209e0c
