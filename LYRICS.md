@@ -103,12 +103,9 @@ L'École du micro d'argent
 *********************************************************
 
 
-<<<<<<< HEAD
 # Akhenaton
-=======
 # Akhenaton :
 
->>>>>>> 49135a0c1ac4fa4ab0f3da5c04d189adea903bd9
 
 Mon sabre scintille, je médite accroupi sous les branches d'un saule
 
@@ -152,33 +149,11 @@ Délégué pour mettre un terme à ces horreurs
 
 Tel est mon labeur, tu sais de qui je défends l'honneur
 
-<<<<<<< HEAD
 L'École du micro d'argent
-=======
->>>>>>> 49135a0c1ac4fa4ab0f3da5c04d189adea903bd9
 
 *********************************************************
 
 
-<<<<<<< HEAD
-=======
-L'École du micro d'argent
-
-L'École du micro d'argent
-
->>>>>>> 49135a0c1ac4fa4ab0f3da5c04d189adea903bd9
-Je représente
-
-L'École du micro d'argent
-
-L'École du micro d'argent
-
-Je représente
-
-<<<<<<< HEAD
-
-=======
->>>>>>> 49135a0c1ac4fa4ab0f3da5c04d189adea903bd9
 L'École du micro d'argent
 
 L'École du micro d'argent
@@ -189,7 +164,18 @@ L'École du micro d'argent
 
 L'École du micro d'argent
 
-<<<<<<< HEAD
+Je représente
+
+
+L'École du micro d'argent
+
+L'École du micro d'argent
+
+Je représente
+
+L'École du micro d'argent
+
+L'École du micro d'argent
 
 
 
@@ -198,5 +184,4 @@ L'École du micro d'argent
 
 
 
-=======
->>>>>>> 49135a0c1ac4fa4ab0f3da5c04d189adea903bd9
+
